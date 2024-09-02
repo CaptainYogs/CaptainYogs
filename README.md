@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a third-year Computer Science student with a passion for coding.<br>Find me playing video games or coding :)
+I am a fourth year Computer Science Engineering student with a passion for coding.<br>Find me playing video games or coding :)
 
 
 ## 🌐 Socials:
